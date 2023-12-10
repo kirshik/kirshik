@@ -24,7 +24,7 @@
 
 ###
 
-<p align="left">✨ Creating bugs since 2019<br>📚 I'm currently learning big projects handling<br>🎯 Goals: became TeamLead at 21</p>
+<p align="left">✨ Creating bugs since 2019<br>📚 I'm currently learning big projects handling<br>🎯 Goals: became TeamLead at 24</p>
 
 ###
 
